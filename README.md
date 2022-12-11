@@ -1,1 +1,1 @@
-# rsschool-cv
+https://SayonaraDanSun.github.io/rsschool-cv/cv
