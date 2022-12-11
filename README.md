@@ -1,1 +1,1 @@
-https://SayonaraDanSun.github.io/rsschool-cv/cv
+https://SayonaraDanSun.github.io/rsschool-cv/
